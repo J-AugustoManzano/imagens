@@ -1,1 +1,1 @@
-Imagens das capas dos livros produzidos
+Imagens gerais usadas em diversos repositórios pessoais.
